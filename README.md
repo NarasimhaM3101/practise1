@@ -1,7 +1,14 @@
 # practise1
 babysteps
 
-#testing 
-#testing
+# Shraddha - Faith
+# Saburi - Patience
+# Om Ganesaya namahah...
 
-#testing
+## One step at a time... conquer the weaknesses..
+
+### Saraswathi Namasthubhyam varade kama rupini. 
+### Vidyarambam karishyami Siddhir bhavathume sadha... 
+
+##### Jai Shree Sai..
+
